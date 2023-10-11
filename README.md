@@ -1,6 +1,8 @@
 <h1>Peraplay Gaming</h1>
 Peraplay Gaming stands out as the premier online gaming platform in the Philippines.<br>
-Don't take our word for it – see for yourself at <a href="https://www.peraplay.net" title="Peraplay">https://www.peraplay.net</a><br>
+Don't take our word for it – see for yourself at <a href="https://www.peraplay.net" title="Peraplay">https://www.peraplay.net</a><br><br>
+Peraplay Gaming provides you with the best online live betting experience with live streaming of football, sabong, boxing, tennis and more.<br>
+Peraplay is a top online casino in the Philippines. Peraplay has a legal license issued by the European Maltese Administration (MGA) and PAGCOR.<br>
 <h2>Promotions:</h2>
 <a href="https://www.peraplay.net" title="Peraplay">https://www.peraplay.net</a><br>
 <a href="https://www.peraplay.org" title="Peraplay Gaming">https://www.peraplay.org</a><br>
